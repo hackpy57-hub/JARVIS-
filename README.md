@@ -1,2 +1,0 @@
-# JARVIS-
-Urdu+ English Ai
